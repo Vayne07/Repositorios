@@ -1,2 +1,0 @@
-# XDDDDDD
-# DDDD
